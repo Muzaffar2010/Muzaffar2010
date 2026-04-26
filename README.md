@@ -1,14 +1,8 @@
 
 
 
-- 👋 Hi, I’m @Muzaffar2010
-- 👀 I’m interested in ...
-- 🌱 I’m currently learning ...
-- 💞️ I’m looking to collaborate on ...
-- 📫 How to reach me ...
+- 👋 Hi, I’m Cyrene
+- 👀 I’m interested in #d Animating silly things renders and sometimes just try to make little website
+- 📫 How to reach me Is On Discord Most of times discord.com/users/952549798718881802 but mostly u can reach from my Email ortikovmuzaffar47@gmail.com but please dont spam my email box!
 
-<!---
-Muzaffar2010/Muzaffar2010 is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
-You can click the Preview link to take a look at your changes.
---->
-Ol
+🌸that all for now🌸
